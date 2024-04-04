@@ -1,4 +1,5 @@
-https://youtube.com/shorts/CEDIyw-cbEU?feature=share
+##동영상
+[https://youtube.com/shorts/CEDIyw-cbEU?feature=share](https://drive.google.com/file/d/1YEOfqj2TrjRYnBmuTLk2dXix_Jip1DNz/view?usp=drive_link)
 
 # Graphic
  -----------------------------------------------------------------
